@@ -1,0 +1,1 @@
+# majdal-app-screen-shots
